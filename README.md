@@ -1,0 +1,1 @@
+# CompetitorIQ-Studio
